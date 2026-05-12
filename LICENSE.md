@@ -1,4 +1,4 @@
-#  
+#  pet simulator 99 custom Script is the best pet simulator 99 Script, featuring auto-sell and no cooldown. Safe and powerful for all your needs.
 
 
 
